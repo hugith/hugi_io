@@ -1,3 +1,3 @@
 # hugi_io
 
-Þetta er nú aldeilis skemmtilegt. Hvern hefði grunað að svona gæti þetta verið!
+Þetta er nú aldeilis skemmtilegt. Hvern hefði grunað að svona gæti þetta verið! Smu smu smu
